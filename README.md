@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Stefaniach
 - 👀 I’m interested in People & Culture
-- 🌱 I’m currently learning how to go about this
-- 💞️ I’m looking to collaborate on People projects
+- 🌱 I’m currently traveling
+- 💞️ I’m happy to collaborate on People projects
 - 📫 How to reach me stefania.chiorboli@gmail.com
 
 <!---
